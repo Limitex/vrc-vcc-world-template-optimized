@@ -1,0 +1,1 @@
+# vrc-vcc-world-template-optimized
